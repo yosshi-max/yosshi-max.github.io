@@ -1,0 +1,1 @@
+# yosshi-max.github.io
